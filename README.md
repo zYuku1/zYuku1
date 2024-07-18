@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @zYuku1
 - 👀 I’m interested in Gaming
 - 🌱 I’m currently learning Nothing
-- 💞️ I’m looking to collaborate on tu madre
+- 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me non scrivetemi
 - 😄 Pronouns: non sono frocio
 - ⚡ Fun fact: odio gli ebrei
